@@ -1,4 +1,4 @@
-## 🙏 Hi there! My name is Kasun.
+## 🙏 Hi there!
 
 - 🔭 I’m currently working as a Probe Design Scientist
 - 🌱 I’m currently learning many things
